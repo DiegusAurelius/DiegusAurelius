@@ -9,3 +9,5 @@
 > "The magic you're looking for is in the work you're avoiding." –Anon
 
 > "When you're in bed, you're dead." –Morrie Schwartz
+
+> "The greatest battle of all is with yourself—your weaknesses, your emotions, your lack of resolution in seeing things through to the end. You must declare unceasing war on yourself." –Robert Greene
