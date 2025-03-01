@@ -4,4 +4,4 @@
 
 🍣 Once you decide on your occupation, you must immerse yourself in your work. You have to fall in love with your work. Never complain about your job. You must dedicate your life to mastering your skill. That's the secret of success and is the key to being regarded honorably. –Jiro Ono
 
-🦋 The butterfly's life cycle, from caterpillar to winged adult, symbolizes personal growth and transformation. It reminds wearers of their capacity for change and emerging stronger from life's challenges.
+🦋 The butterfly's life cycle, from caterpillar to winged adult, symbolizes personal growth and transformation. It reminds our capacity for change and emerging stronger from life's challenges.
