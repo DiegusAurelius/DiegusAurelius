@@ -18,4 +18,4 @@ If you're going to try, go all the way. There is no other feeling like that.
 You will be alone with the gods, and the nights will flame with fire.
 You will ride life straight to perfect laughter. 
 It's the only good fight there is."
-- Charles Bukowski
+–Charles Bukowski
